@@ -10,8 +10,7 @@ I'll be he was adopted, but I know where he came from \
 it wasn't natural selection, but emotional rejection \
 and...
 
-That shit really really wrecked Homo-Erectus\
-That shit really really wrecked Homo-Erectus
+That shit really wrecked Homo Erectus\
 
 When they become conscious, they created them a god, \
 one that punished them for sinning, \
@@ -27,14 +26,13 @@ That shit really really wrecked Homo-Erectus
 Children carry guns, and they kill themselves for fun \
 'cause they see it on TV \
 and they think that is reality \
-Bi-peds pump the tube \
+Bipeds pump the tube \
 because they know your minds are glued \
 to the madness that they sold \
 but I guess they never told you \
 what it did...
 
-That shit really really wrecked Homo-Erectus\
-That shit really really wrecked Homo-Erectus
+That shit really wrecked Homo Erectus\
 
 Tell me if you can \
 is this the end of modern man? \
@@ -43,7 +41,6 @@ could it be that we're the missing link? \
 And we'll be gone tomorrow \
 for some future race to rise \
 who'll put an end to self-destruction \
-and the blindness in our... because
+and the blindness in our eyes, because...
 
-That shit really really wrecked Homo-Erectus\
 That shit really really wrecked Homo-Erectus
