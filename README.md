@@ -10,8 +10,7 @@ in any commercial way without permission or license form Blue Nova Music (ASCAP)
 ___
 
 #### GT Circa 1992
-
-Gorilla Theater was formed in the Spring of 1991 by founding members
+[Gorilla Theater](https://reverbnation.com/gorillatheater) was formed in the Spring of 1991 by founding members
 Lance Jordan (Lead Vocals, Lead Guitar) and Brian Tracey (drummer),
 John LaPrade (rhythm guitar, vocals) and Sam Woodworth (bass guitar). The early
 days of the band were heavily influenced by 80s alternative bands like The Smiths,
@@ -33,6 +32,8 @@ which led to a year long journey into studying Jazz guitar, as well as classical
 Indian music (Sitar), and even African djembe (hand drum). Eventually that journey
 led him to become a music producer and DJ.
 
+[Checkout Gorilla Theater on Reverb Nation](https://reverbnation.com/gorillatheater)
+
 <img src="https://scontent-lga3-1.xx.fbcdn.net/v/t1.0-9/117286301_10158052536552217_6959052722070277008_o.jpg?_nc_cat=106&ccb=3&_nc_sid=730e14&_nc_ohc=87J3EvXg3S0AX-bL-3r&_nc_ht=scontent-lga3-1.xx&oh=a7e364dd37ef3553727581e22ac856ae&oe=604A9E55"/>
 
 #### All Apes Rock 🎸🤘🏻
@@ -41,7 +42,7 @@ led him to become a music producer and DJ.
 
 #### Scrapbook Memories
 
-<a href="https://www.reverbnation.com/gorillatheater"><img src="https://github.com/lacostenycoder/lj-music-archive/blob/master/gorilla_theater_scraps/gtflyer.jpg?raw=true"/></a>
+<img src="https://github.com/lacostenycoder/lj-music-archive/blob/master/gorilla_theater_scraps/gtflyer.jpg?raw=true"/>
 
 ___
 
