@@ -1,7 +1,7 @@
 ### A Call to the Poets of Tomorrow
  _words and music by Lance Jordan ©1993_
 
- [♪♪ Stream Here ♪♪] (https://www.reverbnation.com/gorillatheater/song/32426703-call-to-poets-tomorrow)
+ [♪♪ Stream Here ♪♪](https://www.reverbnation.com/gorillatheater/song/32426703-call-to-poets-tomorrow)
 
 
 For once in your life take a stand \

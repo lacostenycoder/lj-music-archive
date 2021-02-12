@@ -2,7 +2,7 @@
 
 _Words and Music by Lance Jordan performed by Gorilla Theater ©1994_
 
-[♪♪ Stream Here ♪♪] (https://www.reverbnation.com/gorillatheater/song/32426663-blind)
+[♪♪ Stream Here ♪♪](https://www.reverbnation.com/gorillatheater/song/32426663-blind)
 
 We're born into the world today \
 without a choice or what to say \

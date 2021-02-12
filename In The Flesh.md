@@ -1,7 +1,7 @@
 ### In The Flesh
 _words and music by Lance Jordan performed by Gorilla Theater ©1994_
 
-[♪♪ Stream Here ♪♪] (https://www.reverbnation.com/gorillatheater/song/32426665-in-the-flesh)
+[♪♪ Stream Here ♪♪](https://www.reverbnation.com/gorillatheater/song/32426665-in-the-flesh)
 
 I was born inside a chain-linked fence \
 and I will die on barbed wire \

@@ -1,7 +1,7 @@
 ### All Your Life (Winds of Candlestick Park)
 _words & music by  Roy Jordan and Lance Jordan ©1994_
 
-[♪♪ Stream Here ♪♪] (https://www.reverbnation.com/gorillatheater/song/32426699-all-your-life)
+[♪♪ Stream Here ♪♪](https://www.reverbnation.com/gorillatheater/song/32426699-all-your-life)
 
 Just because you're lucky now \
 doesn't mean you'll be forever \

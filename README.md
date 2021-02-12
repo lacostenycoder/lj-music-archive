@@ -41,7 +41,7 @@ led him to become a music producer and DJ.
 
 #### Scrapbook Memories
 
-<img src="https://github.com/lacostenycoder/lj-music-archive/blob/master/gorilla_theater_scraps/gtflyer.jpg?raw=true"/>
+<a href="https://www.reverbnation.com/gorillatheater"><img src="https://github.com/lacostenycoder/lj-music-archive/blob/master/gorilla_theater_scraps/gtflyer.jpg?raw=true"/></a>
 
 ___
 
