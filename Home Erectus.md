@@ -1,6 +1,8 @@
 ### Homo Erectus
 _words and music by Lance Jordan performed by Gorilla Theater ©1994_
 
+[♪♪ Stream Here ♪♪](https://www.reverbnation.com/gorillatheater/song/32426662-homo-erectus)
+
 Darwin had a plan, it turned a monkey to a man \
 but it all went down the sink \
 'cause he couldn't find the missing link \

@@ -1,6 +1,8 @@
 ### Show Me The Light
 _words and music by Lance Jordan performed by Gorilla Theater ©1994_
 
+[♪♪ Stream Here ♪♪] (https://www.reverbnation.com/gorillatheater/song/32426730-show-me-the-light)
+
 I will be with the be when I believe it \
 I will see with the see when I'm seeing \
 I will hear with the heard what they are sayin' \

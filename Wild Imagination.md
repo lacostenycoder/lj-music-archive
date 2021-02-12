@@ -2,6 +2,8 @@
 
 _words and music by Lance Jordan performed by Gorilla Theater ©1994_
 
+[♪♪ Stream Here ♪♪] (https://www.reverbnation.com/gorillatheater/song/32426696-wild-imaginition)
+
 Once, I held your heart for ransom
 you didn't care, that I wasn't even handsome
 I speakin' a language you can't understand because

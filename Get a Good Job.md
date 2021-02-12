@@ -1,6 +1,8 @@
 ### Get a Good Job
 _words and music by Lance Jordan performed by Gorilla Theater ©1994_
 
+[♪♪ Stream Here ♪♪] (https://www.reverbnation.com/gorillatheater/song/32426668-get-good-job)
+
 Get a good job \
 one that pays all your bills \
 Study real hard \
