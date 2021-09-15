@@ -8,7 +8,7 @@ This sweet player is a strat-lover's wet dream!  It features a 9.5 inch radius m
 
 ## Comes with super awesome DiMarzio hum-cancelling pickups!
 
-3 custom pickups, 1 for each position
+3 custom patented pickups, 1 for each position - [US Patent Info](https://patents.google.com/patent/US4501185/en)
 ____
 
 ### Bridge Pickup
